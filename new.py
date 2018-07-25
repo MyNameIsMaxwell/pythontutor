@@ -1,1 +1,1 @@
-maks krutoy,artem nu po4ti
+Example
